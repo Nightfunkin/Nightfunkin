@@ -1,5 +1,4 @@
-### Hi there 👋
-
+### HELLO UHH GO TO MY SCRATCH https://scratch.mit.edu/users/NIGHTFunkin/
 <!--
 **Nightfunkin/Nightfunkin** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
